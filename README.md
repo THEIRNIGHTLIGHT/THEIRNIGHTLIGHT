@@ -1,6 +1,6 @@
 <p align="center">
-<img src="https://i.postimg.cc/5Nf1zfYB/Untitled3433-20250509174431.png">   
-<br>  ꒰৯<a href=https://rentry.co/macevolent>main rentry</a> ‎‎‎⟢ <a href=https://prns.cc/nvnlc>prns.cc</a>໒꒱  <br
+<img src="https://i.postimg.cc/HWcmjZ7v/Untitled3541-20250523181153.png">   
+<br>  <a href=https://rentry.co/macevolent>rentry</a> ‎‎‎⟢ <a href=https://prns.cc/nvnlc>prns.cc</a>  <br
 </p>
 <!---
 urenternalprison/urenternalprison is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
